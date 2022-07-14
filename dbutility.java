@@ -1,1 +1,0 @@
-tum kese ho
