@@ -1,1 +1,1 @@
-my accouny is state bank of inda
+my accouny is state bank of india and ifsc id nfdjnk
